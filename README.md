@@ -1,7 +1,5 @@
 ### Olá eu sou o Luydi Matheu 👨🏻‍💻
 🦾 Entusiasta da Inovação e Tecnologia <br/>
-📉 Founder @hexagonbi <br/>
-👨🏻‍💻 Web Desenvolvedor @bezacontent <br/>
 🎓 Acadêmico de Ciência da Computação
 
 
