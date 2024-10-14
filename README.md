@@ -1,4 +1,4 @@
-### Olá eu sou o Luydi Matheu 👨🏻‍💻
+### Olá, Luydi aqui 👨🏻‍💻
 🦾 Entusiasta da Inovação e Tecnologia <br/>
 🎓 Acadêmico de Ciência da Computação
 
